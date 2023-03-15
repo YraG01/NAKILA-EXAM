@@ -6,3 +6,8 @@
 3. Watching k-drama's, horror, comedy movies
 4. Reading novels
 5. Scrolling through my socmed accounts 
+
+GROUP MEMBERS
+Nakila,
+Lofaranco,
+Kasil
